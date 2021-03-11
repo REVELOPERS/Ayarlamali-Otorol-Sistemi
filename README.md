@@ -1,0 +1,1 @@
+# Ayarlamali-Otorol-Sistemi
